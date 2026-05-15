@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket AI-powered Strategy: cross-chain-arbitrage & volatility-detection, the #1 strategy. Includes cross-chain-arbitrage and
 
 
 
